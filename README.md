@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **manjali855@gmail.com**
 
-- 📄 My resume link [https://drive.google.com/file/d/1ZOaVupKtISKp9Pgvmj6sraIEjfwZOSzF/view?usp=drive_link](https://drive.google.com/file/d/1ZOaVupKtISKp9Pgvmj6sraIEjfwZOSzF/view?usp=drive_link)
+- 📄 My resume link [https://drive.google.com/file/d/1KaksCD6vM48PU6qG8M6kCHKOPyesWmW7/view?usp=drive_link](https://drive.google.com/file/d/1KaksCD6vM48PU6qG8M6kCHKOPyesWmW7/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
